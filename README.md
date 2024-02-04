@@ -14,5 +14,5 @@ it/its/itself. 18y. read my rentry<br>
 
 <p align="center">
 <i>❝ bear up my lullaby, winds of the earth,<br>
-through cloud, and through sky, and through <a href="https://waterdhavian.carrd.co/">space</a>. ❞</i>
+through cloud, and through sky, and through space. ❞</i>
 </p>
